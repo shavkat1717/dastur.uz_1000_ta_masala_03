@@ -1,1 +1,1 @@
-# dastur.uz_1000_ta_masala_03
+# dastur.uz [03 Mantiqiy amallarga oid masalalar]
